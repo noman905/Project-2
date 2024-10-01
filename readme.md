@@ -1,4 +1,4 @@
 # noman Afzal Tatla
 tatla is a brand
-# Tatla
-Noman afzal  djwdnjwidnken njwnd
+# Tatla noman is a goof 
+Noman afzal  djwdnjwidnken njwnd jdbdujeccc
